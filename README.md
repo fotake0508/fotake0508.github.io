@@ -1,0 +1,1 @@
+# fotake0508.github.io
